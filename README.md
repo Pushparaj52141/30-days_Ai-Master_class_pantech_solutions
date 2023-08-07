@@ -1,0 +1,1 @@
+# 30-days_Ai-Master_class_pantech_solutions
